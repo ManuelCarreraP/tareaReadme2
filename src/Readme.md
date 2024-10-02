@@ -9,3 +9,6 @@ A fines del siglo XIX, el **sionismo** promovió el regreso de los judíos a Pal
 
 ### Mandato Británico y Declaración Balfour
 Tras la Primera Guerra Mundial, Palestina quedó bajo control británico. En 1917, la **Declaración Balfour** apoyaba un hogar nacional judío, incrementando el conflicto entre judíos y árabes.
+
+### Creación de Israel (1948)
+En 1948, se declaró el **Estado de Israel**, desatando la primera guerra árabe-israelí. Miles de palestinos fueron desplazados.
