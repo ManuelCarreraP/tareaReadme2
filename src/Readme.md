@@ -12,3 +12,7 @@ Tras la Primera Guerra Mundial, Palestina quedó bajo control británico. En 191
 
 ### Creación de Israel (1948)
 En 1948, se declaró el **Estado de Israel**, desatando la primera guerra árabe-israelí. Miles de palestinos fueron desplazados.
+
+### Ocupación y Conflicto
+En 1967, Israel ocupó Cisjordania y Gaza, agravando el conflicto, que sigue sin resolverse, con disputas por territorios y reconocimiento de un Estado palestino.
+
