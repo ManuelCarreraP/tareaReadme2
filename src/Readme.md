@@ -20,3 +20,6 @@ En 1967, Israel ocupó Cisjordania y Gaza, agravando el conflicto, que sigue sin
 Actualmente, **Palestina** enfrenta un conflicto continuo con **Israel**, marcado por la ocupación israelí de *Cisjordania* y el bloqueo de *Gaza*, gobernada por **Hamas**. Las tensiones se centran en asentamientos israelíes considerados **ilegales** y en la situación de _Jerusalén_. Las negociaciones de paz están **estancadas** y el reconocimiento de un Estado palestino independiente no ha avanzado, lo que agrava las condiciones de vida de los palestinos y mantiene el ciclo de _violencia_.
 
 [Noticias Actualidad Palestina](https://www.europapress.es/temas/palestina/)
+
+En la siguiente imagen se puede ver a gente de todos los lugares del mundo protestando por la libertad de Palestina
+![Protestantes por Palestina](https://i0.wp.com/efe.com/wp-content/uploads/2024/09/palestina-libano-israel.jpg?fit=900%2C599&ssl=1)
