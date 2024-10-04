@@ -21,5 +21,5 @@ Actualmente, **Palestina** enfrenta un conflicto continuo con **Israel**, marcad
 
 [Noticias Actualidad Palestina](https://www.europapress.es/temas/palestina/)
 
-En la siguiente imagen se puede ver a gente de todos los lugares del mundo protestando por la libertad de Palestina
+En la siguiente imagen se puede ver a gente de todos los lugares del mundo protestando por la libertad de Palestina.
 ![Protestantes por Palestina](https://i0.wp.com/efe.com/wp-content/uploads/2024/09/palestina-libano-israel.jpg?fit=900%2C599&ssl=1)
